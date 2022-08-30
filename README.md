@@ -1,2 +1,2 @@
-amazing
+los-angeles
 Jesus is King!
