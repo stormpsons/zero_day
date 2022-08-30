@@ -1,1 +1,2 @@
 amazing
+Jesus is King!
